@@ -8,7 +8,8 @@ This is my personal collection of high-stakes moments from Valorant.
 
 https://github.com/user-attachments/assets/a4094557-1c44-4dbe-9010-449a059af428
 
-https://github.com/user-attachments/assets/b5598d5f-70cd-406a-85fa-a227c72b8177
+https://github.com/user-attachments/assets/c73afc0f-32fc-49b7-9966-63b46aa2a855
+
 
 
 
