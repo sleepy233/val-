@@ -4,6 +4,8 @@ My raw gameplay clips
 This is my personal collection of high-stakes moments from Valorant.
 
 ## Clips
+![clean 3k](clean 3k.mp4)
+![neon rush](neon rush.mp4)
 
 
 
