@@ -4,13 +4,14 @@ My raw gameplay clips
 This is my personal collection of high-stakes moments from Valorant.
 
 ## Clips
-![clean 3k](clean_3k.mp4)
 
 
-https://github.com/user-attachments/assets/3207b222-b8f5-48a9-a4d9-fc7874deebd9
+https://github.com/user-attachments/assets/a4094557-1c44-4dbe-9010-449a059af428
 
 
-![neon rush](https://github.com/user-attachments/assets/3207b222-b8f5-48a9-a4d9-fc7874deebd9)
+
+
+
 
 
 
