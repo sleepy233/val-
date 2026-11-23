@@ -5,6 +5,7 @@ This is my personal collection of high-stakes moments from Valorant.
 
 ## Clips
 ![clean 3k](clean_3k.mp4)
+
 ![neon rush](neon_rush.mp4)
 
 
